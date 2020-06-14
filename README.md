@@ -8,7 +8,7 @@ As the US is once again publicly debating the role of the police and policing af
 
 ## The Roots of Policing and Capitalism are in Slavery
 
-From the founding of the US colonies, the economic viability of US capitalism was based in slavery with slave patrols, an early form of policing, as an enforcement mechanism. Policing was based around the viability of the economic system and control.
+From the founding of the US colonies, the economic viability of US capitalism was based in slavery with slave patrols, an early form of policing, as an enforcement mechanism. Policing was and remains to be based around ensuring the viability of the economic system and controlling the people, whether acting as slave patrol, quashing worker rebellions, or increasing the prison populations.
 
 This link between Black liberation and socialist alternatives to capitalism was a key part of the US civil rights movement, despite attempts to deradicalize history. Organizations, such as the Black Panthers, were explicit about the connection between racism and capitalism and built coalitions across racial lines (see the [Rainbow Coalition](https://en.wikipedia.org/wiki/Rainbow_Coalition_%28Fred_Hampton%29), which was founded by the Black Panthers, the Appalachian Young Patriots, and the Puerto Rican Young Lords). Some scholars, like Asad Haider, have even described it as "the closest US equivalent to mass workers' movement in postwar Europe" ([Mistaken Identity](https://www.versobooks.com/books/2716-mistaken-identity), pg 15). 
 
