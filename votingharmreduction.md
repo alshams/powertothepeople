@@ -1,4 +1,4 @@
-# Build Community 
+# Support Each Other
 
 I believe the following statements are both true:  
 
